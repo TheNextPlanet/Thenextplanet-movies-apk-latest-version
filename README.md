@@ -52,7 +52,7 @@ The **The Next Planet APK** brings your favorite entertainment together in one l
 | Source | Status |
 |---------|--------|
 | https://www.thenextworld.site/ | 🌍 Official Website |
-| [Drive Download](https://mega.nz/file/DixVgASD#kvFtbGMQLNudwAi8vw8CLFo_SMCbKEzbTtW-iqdCR7U )| 🌍 MEGA Drive |
+| [APK Download](https://mega.nz/file/DixVgASD#kvFtbGMQLNudwAi8vw8CLFo_SMCbKEzbTtW-iqdCR7U )| 🌍 MEGA Drive |
 
 ---
 
